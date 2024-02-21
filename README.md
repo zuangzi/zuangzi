@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zuangzi
-- 👀 I’m interested in mixing and mastering music
+- 👀 I’m interested in mixing and mastering 
 - 🌱 I’m currently learning to live in peace
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
